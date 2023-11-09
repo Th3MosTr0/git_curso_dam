@@ -1,1 +1,1 @@
-ECHO est† activado.
+Angel garc√≠a
